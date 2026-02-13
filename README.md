@@ -1,5 +1,5 @@
 # Anish Sarkar
-Developer & Designer ✦<br>I craft elegant digital experiences with attention to detail and a focus on user experience<br><br>› Ex Intern Intervue.io, DRDO
+Developer & Designer ✦<br>I craft elegant digital experiences with attention to detail and a focus on user experience<br> Ex Intern Intervue.io, DRDO
 
 
 ## 🌐 Socials:
